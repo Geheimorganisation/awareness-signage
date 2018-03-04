@@ -19,7 +19,7 @@ You don't have to be able to hack NASA in order to be a part of congress. As lon
 You have the right to decide when, where and by whom you want to be photographed or filmed.
 You have the right to be treated fairly. Nobody has the right to threaten you or scare you. No matter how. Nobody is allowed to blackmail you, treat you poorly or hurt you. You decide what goes beyond your limits, nobody else.
 
-You have the right to decide how close people can be to you. Nobody is allowed to touch you, massage you, caress you, kiss you or push you to do so to someone else.
+You have the right to decide how close people can be to you. Nobody is allowed to touch you, massage you, caress you, kiss you against your will or push you to do so to someone else.
 
 You have the right to say NO and to resist when someone oversteps your borders, hurts your feelings or those of someone else! You can say NO with facial expressions, words or body language. Even if you have said YES before.
 
