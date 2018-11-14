@@ -15,11 +15,11 @@ Nach Amyna e.V., Institut zur Prävention sexuellen Missbrauchs. Die Anpassung u
 
 # Know your rights
 
-You don't have to be able to hack NASA in order to be a part of congress. As long as you are considerate of others and pay regard to the hacker ethic while doing things, you have a place here.
-You have the right to decide when, where and by whom you want to be photographed or filmed.
-You have the right to be treated fairly. Nobody has the right to threaten you or scare you. No matter how. Nobody is allowed to blackmail you, treat you poorly or hurt you. You decide what goes beyond your limits, nobody else.
+You don't have to be able to hack NASA in order to be a part of congress. As long as you are considerate of others and respect the hacker ethic while doing things, you have a place here.
+You have the right to decide when, where and by whom you are photographed or filmed.
+You have the right to be treated fairly. Nobody has the right to threaten or intimidate you. Nobody is allowed to blackmail, mistreat or hurt you. No matter how. You decide what goes beyond your limits, nobody else.
 
-You have the right to decide how close people can be to you. Nobody is allowed to touch you, massage you, caress you, kiss you against your will or push you to do so to someone else.
+You have the right to decide how close people can get. Nobody is allowed to touch, massage, caress or kiss you against your will nor push you to do so to someone else.
 
 You have the right to say NO and to resist when someone oversteps your borders, hurts your feelings or those of someone else! You can say NO with facial expressions, words or body language. Even if you have said YES before.
 
