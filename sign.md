@@ -3,11 +3,11 @@
 Du musst nicht die NASA hacken können, um zum Kongress zu gehören. Solange du rücksichtsvoll mit anderen umgehst und in deinem Tun die Hackerethik beachtest, hast du hier einen Platz.
 Du hast das Recht, selbst zu bestimmen, wann, wo und von wem du fotografiert oder gefilmt werden willst.
 
-Du hast das Recht, fair behandelt zu werden. Niemand hat das Recht, dir zu drohen oder dir Angst zu machen. Egal wie. Niemand darf dich erpressen, abwertend behandeln oder weh tun. Was für dich zu weit geht bestimmst nur du selbst, niemand sonst.
+Du hast das Recht, fair behandelt zu werden. Niemand hat das Recht, dir zu drohen oder dir Angst zu machen. Egal wie. Niemand darf dich erpressen, abwertend behandeln oder dir weh tun. Was für dich zu weit geht bestimmst nur du selbst, niemand sonst.
 
-Du hast das Recht, selbst zu bestimmen, wie nahe dir jemand wann, wie und wo kommt. Niemand darf dich gegen Deinen Willen berühren, massieren, streicheln, küssen oder drängen, das mit jemand anderen zu tun.
+Du hast das Recht, selbst zu bestimmen, wie nahe dir jemand wann, wie und wo kommt. Niemand darf dich gegen Deinen Willen berühren, massieren, streicheln, küssen oder drängen, das mit jemand anderem zu tun.
 
-Du hast das Recht, NEIN zu sagen und dich zu wehren, wenn jemand deine Grenzen überschreitet, deine Gefühle oder die von jemand anderen verletzt! Du kannst NEIN sagen mit Blicken, Worten oder durch deine Körperhaltung. Auch, wenn du schon einmal JA gesagt hast.
+Du hast das Recht, NEIN zu sagen und dich zu wehren, wenn jemand deine Grenzen überschreitet, deine Gefühle oder die von jemand anderem verletzt! Du kannst NEIN sagen mit Blicken, Worten oder durch deine Körperhaltung. Auch, wenn du schon einmal JA gesagt hast.
 
 Du hast das Recht, für dich und andere Unterstützung zu holen. Wenn du dich unwohl fühlst oder es dir schlecht geht, darfst du dir Hilfe holen. Du findest Hilfe beim CERT für deine Gesundheit (DECT 112), bei der Security (DECT 110) für deine Sicherheit und beim Awareness-Team (DECT 113) für dein seelisches Wohlergehen.
 
